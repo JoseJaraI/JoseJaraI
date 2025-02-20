@@ -8,4 +8,5 @@ Uno dei miei piatti preferiti, lo magerei anche a mezzanotte!
 *aglio
 *olio
 *peperoncino
+*NUOVO Ananas
 
