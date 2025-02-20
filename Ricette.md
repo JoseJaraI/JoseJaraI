@@ -1,3 +1,4 @@
 #Ricette di Jose Jara
 
-*riso, pollo, cipolla
+*Spaghetti Aglio, Olio e Peperoncino
+
