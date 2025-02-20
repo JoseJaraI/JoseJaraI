@@ -1,3 +1,4 @@
 #Ricette di Jose Jara
 
-*riso, pollo, cipolla
+*Spaghetti aglio, olio e peperoncino
+*pennette alla carbonara
