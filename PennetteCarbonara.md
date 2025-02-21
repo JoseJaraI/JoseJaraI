@@ -6,6 +6,6 @@ La famosa ricetta di Pennette alla Carbonara
 
 *pennette
 *uova
-*pancetta
+*guanciale
 *pepe nero
 
